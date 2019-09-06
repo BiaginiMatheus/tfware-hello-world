@@ -1,8 +1,1 @@
-# tfware-hello-world
 
-
-OIIIIIIIIIIIIIIIIIIIII
-ESTIVE AQUI
-::)
-ESSA É MINHA ARANHA
-::)
